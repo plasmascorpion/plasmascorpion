@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @plasmascorpion
+- 👀 I’m interested gaming, welding, and autotech
